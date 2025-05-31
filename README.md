@@ -6,7 +6,7 @@
 - I also plan on learning physics and one day I want to get into Quantum Mechanics and astronomy.
 - I am looking to find some internships and work IT, while I am in University!
 
-- Feel free to email me about any questions about how I may be a good cantidate for your workplace!
 
+<p>Feel free to send me an email for any inquiries:</p>
 
-- How to reach me at isaiah@igoshman.com
+- Reach me at: isaiah@igoshman.com
